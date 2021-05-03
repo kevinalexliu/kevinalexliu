@@ -1,4 +1,4 @@
-### Hi, I'm Kevin Liu! :v:
+### Hi, I'm Kevin! :v:
 
 I am a software engineer with UI/UX desgin skills based in San Francisco, CA
 
